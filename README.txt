@@ -1,3 +1,3 @@
 Diis
-imagen del Depto
+imagen
 era la unica foto que tenia ;)
